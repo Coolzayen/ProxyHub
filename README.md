@@ -1,6 +1,6 @@
 Hi, welcome to ProxyHub! Our team (me, myself, and I) are commited to finding the best proxies so you can get the freedom you deserve.
 
-⚠️⚠️⚠️BE CAUTIOUS WHEN ENTERING PERSONAL INFORMATION INTO PROXIES AS THEY CAN EASILY STEAL PASSWORDS AND LOGIN DATA⚠️⚠️⚠️
+⚠️⚠️⚠️DO NOT ENTER PERSONAL INFORMATION INTO PROXIES AS THEY CAN STEAL PASSWORDS AND LOGIN DATA⚠️⚠️⚠️
 
 Disclaimer: 
 
