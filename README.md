@@ -1,6 +1,6 @@
 Hi, welcome to ProxyHub! Our team (me, myself, and I) are committed to finding the best proxies so you can get the freedom you deserve. We organize proxies in an "easy-to-access" way, allowing you to get your links as painlessly and freely as possible. We check every proxy on Fridays (or on rare occasions Saturdays) to make sure they are up and running. Enjoy yourself.
 
-⚠️DO NOT ENTER PERSONAL INFO INTO PROXIES AS THEY CAN STEAL PASSWORDS AND LOGIN DATA⚠️
+⚠️DO NOT ENTER PERSONAL INFO THEY CAN STEAL PASSWORDS AND LOGIN DATA⚠️
 
 ❗I RECOMMEND DOWNLOADING ANTI-VIRUS SOFTWARE IF YOU'RE NOT ON A CHROMEBOOK❗
 
