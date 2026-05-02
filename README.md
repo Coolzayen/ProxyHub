@@ -1,4 +1,6 @@
-Hi, welcome to ProxyHub! Our team (me, myself, and I) are commited to finding the best proxies so you can get the freedom you deserve.
+Hi, welcome to ProxyHub! Our team (me, myself, and I) are commited to finding the best proxies so you can get the freedom you deserve. We organize proxies into an "easy-to-access" way allowing you to get your links as painless and free as possible. We check every proxy on Friday's (or on rare occsaions Saturday) to make sure they are up and running. Enjoy yourself.
+
+                                                                                               -Coolzayen
 
 ⚠️DO NOT ENTER PERSONAL INFO INTO PROXIES AS THEY CAN STEAL PASSWORDS AND LOGIN DATA⚠️
 
